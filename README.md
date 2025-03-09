@@ -1,1 +1,1 @@
-# quotes123
+aifanfic.pro
